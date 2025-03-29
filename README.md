@@ -1,4 +1,4 @@
-i dont have a dni because i'm a grown woman but if you have ever cosplayed a n@z! character you can go fuck yourself right up the ass. you know who you are by the way 😉
+i dont have a dni because i'm a grown woman but if you have ever cosplayed n@z!s you can go fuck yourself right up the ass. you know who you are by the way 😉
 
 <div> 
 <h2> >...bytelezz 🧡 </h2>
