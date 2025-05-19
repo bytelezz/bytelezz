@@ -1,16 +1,12 @@
-![](https://komarev.com/ghpvc/?username=bytelezz&color=orange&style=flat-square)
-
 <div> 
 <h1> >...bytelezz 🧡 </h1>
 
-Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner with coding through HTML.
+Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
 <br>
 
-You can find me through...
+:warning: ***People under 16 please do not interact.*** :warning:
+<br>
 
-![https://www.instagram.com/bytelezz/](https://img.shields.io/badge/Instagram-%23E4405F.svg?style=for-the-badge&logo=Instagram&logoColor=white)
-![https://bytelezz.tumblr.com/](https://img.shields.io/badge/Tumblr-%2336465D.svg?style=for-the-badge&logo=Tumblr&logoColor=white)
-<br> 
 <img src="https://64.media.tumblr.com/130bd308ff74a1e396c157397703190a/18d045b35d179237-62/s250x400/c327ea38c802270865bd3ecaa6d077cf1152a0db.gifv">
 <img src="https://64.media.tumblr.com/4317e635008c78fd037864ce82a2e845/18d045b35d179237-38/s250x400/1d86c15e557f80c36753723cd7c9338147d9a516.gifv">
 <img src="https://64.media.tumblr.com/96a3bd7018c75ca5c9c6c9afdd8114b0/18d045b35d179237-ee/s250x400/9e14722deb178c724d6ae4fd59779e4806d568ce.gifv">
@@ -25,3 +21,6 @@ You can find me through...
 <img src="https://64.media.tumblr.com/97dcc695645a1046499a95f7a51c337d/18d045b35d179237-e5/s250x400/2d5d9d3ab30de86ccdf1d328d64b92eca56c02e9.gifv">
 
 </div>
+<br>
+
+![](https://komarev.com/ghpvc/?username=bytelezz&color=orange&style=flat-square)
