@@ -6,8 +6,14 @@ Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner
 
 If you're here for my emergency commissions, please head over to [my portfolio](https://www.bytelezz.com/#portfolio), my [Instagram](https://www.instagram.com/bytelezz), or my [Tumblr](https://www.tumblr.com/bytelezz) for examples. Please whisper me as well.
 
+<img src="https://64.media.tumblr.com/517b181a66489a2516c857770fda7879/130c5ec0d8cec268-e1/s2048x3072/7341c12a0feadc041351c5858db0f6d9fc710970.pnj" width="500">
+
+
+<br>
+
 :warning: ***People under 16 please do not interact.*** :warning:
 <br>
+
 
 <img src="https://64.media.tumblr.com/130bd308ff74a1e396c157397703190a/18d045b35d179237-62/s250x400/c327ea38c802270865bd3ecaa6d077cf1152a0db.gifv">
 <img src="https://64.media.tumblr.com/4317e635008c78fd037864ce82a2e845/18d045b35d179237-38/s250x400/1d86c15e557f80c36753723cd7c9338147d9a516.gifv">
