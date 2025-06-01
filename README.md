@@ -4,6 +4,8 @@
 Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
 <br>
 
+If you're here for my emergency commissions, please head over to [my portfolio](https://www.bytelezz.com/#portfolio), my [Instagram](https://www.instagram.com/bytelezz), or my [Tumblr](https://www.tumblr.com/bytelezz) for examples. Please whisper me as well.
+
 :warning: ***People under 16 please do not interact.*** :warning:
 <br>
 
