@@ -4,13 +4,6 @@
 Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
 <br>
 
-If you're here for my emergency commissions, please head over to [my portfolio](https://www.bytelezz.com/#portfolio), my [Instagram](https://www.instagram.com/bytelezz), or my [Tumblr](https://www.tumblr.com/bytelezz) for examples. Please whisper me as well.
-
-<img src="https://64.media.tumblr.com/517b181a66489a2516c857770fda7879/130c5ec0d8cec268-e1/s2048x3072/7341c12a0feadc041351c5858db0f6d9fc710970.pnj" width="500">
-
-
-<br>
-
 :warning: ***People under 16 please do not interact.*** :warning:
 <br>
 
@@ -32,3 +25,18 @@ If you're here for my emergency commissions, please head over to [my portfolio](
 <br>
 
 ![](https://komarev.com/ghpvc/?username=bytelezz&color=orange&style=flat-square)
+
+<details>
+
+<summary>My Art :-)</summary>
+
+<img src="https://64.media.tumblr.com/4b6f8bb12f51e4519803a188ebf5aaf0/cca498f07c738fd8-a5/s540x810/9c298f0642914a7350715f4bd2bdfb0b369401c7.pnj">
+<img src="https://64.media.tumblr.com/03354fe80167e1605d4ff329bf2ea53f/9127f91542dc34ce-02/s540x810/f952b727ba7f6e9b4ece5bf741f2607b2cf618c5.pnj">
+<img src="https://64.media.tumblr.com/3f7c852936b7e0a8b5e65ee0760225c0/903aa8d1ea2ee49f-24/s540x810/2e1c313a6dfebefa79a5300bb9755a990f770c35.pnj">
+<img src="https://64.media.tumblr.com/3ce665eb5767d0d2a54d82d17a6f96fb/559826df2cbfe229-1f/s540x810/e28c15cd91e3029d5cbf07733f21bb65113fef94.pnj">
+<img src="https://64.media.tumblr.com/2fae823929d93e3f036275b63a60fc0d/e8a23a2f99bb210f-4e/s540x810/f717c20b4ad3c6ad93e4feda2783588f6ea27ad7.pnj">
+
+
+
+
+</details>
