@@ -1,7 +1,7 @@
 <div> 
 <h1> >...bytelezz 🧡 </h1>
 
-Hi! My name is Bytelezz! I'm 18, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
+Hi! My name is Bytelezz! I'm 19, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
 <br>
 
 🍉 Please consider donating to friend's family in Gaza. I personally organized this fundraiser. If you cannot donate, please share or put this link on your Github profile. Thank you. 🍉
