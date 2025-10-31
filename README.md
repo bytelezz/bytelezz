@@ -1,14 +1,16 @@
 <div> 
 <h1> >...bytelezz 🧡 </h1>
 
-Hi! My name is Bytelezz! I'm 19, have two cats, and love to draw! I'm a beginner with coding through HTML. I'm also a huge fan of Oingo Boingo.
+Hi! My name is Bytelezz. I'm 19, have two cats, and love to draw. I'm also a huge fan of Oingo Boingo.
 <br>
 
 🍉 Please consider donating to friend's family in Gaza. I personally organized this fundraiser. If you cannot donate, please share or put this link on your Github profile. Thank you. 🍉
 https://gofund.me/11b7e394
 
-:warning: ***People under 16 please do not interact.*** :warning:
+:warning: ***Will not add anyone under the age of 16.*** :warning:
 <br>
+
+Fans of Hetalia, CountryHumans, Lapfox/Em Essex, Pyshcocuties, or other medias with antisemetic or racist backgrounds strictly DNI pls. thanks.
 
 
 <img src="https://64.media.tumblr.com/130bd308ff74a1e396c157397703190a/18d045b35d179237-62/s250x400/c327ea38c802270865bd3ecaa6d077cf1152a0db.gifv">
