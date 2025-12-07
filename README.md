@@ -7,7 +7,7 @@ Hi! My name is Bytelezz. I'm 19, have two cats, and love to draw. I'm also a hug
 🍉 Please consider donating to friend's family in Gaza. I personally organized this fundraiser. If you cannot donate, please share or put this link on your Github profile. Thank you. 🍉
 https://gofund.me/11b7e394
 
-:warning: ***Will not add anyone under the age of 16.*** :warning:
+:warning: ***Will not add anyone under the age of 18.*** :warning:
 <br>
 
 Fans of Hetalia, CountryHumans, Lapfox/Em Essex, Pyshcocuties, or other medias with antisemetic or racist backgrounds strictly DNI pls. thanks.
